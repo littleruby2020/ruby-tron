@@ -1,0 +1,2 @@
+So far things have been easy.  This is where things get a little difficult.  Somewhere buried in this mess of files is the
+are the clues to the next part of your quest.  Becoming a master Gemologist might help with this one.
